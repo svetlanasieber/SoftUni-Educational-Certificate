@@ -1,1 +1,1 @@
-![15 09-software-Kubernetes](https://github.com/user-attachments/assets/4a9e0136-a1f6-4b22-8d6d-56600c5be004)
+![470195173_1063568109002322_8875315599617606531_n](https://github.com/user-attachments/assets/bc932c2a-c263-4298-a7fa-bb1c0d9a1f93)
